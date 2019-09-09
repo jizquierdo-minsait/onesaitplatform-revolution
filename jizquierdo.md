@@ -1,0 +1,1 @@
+Mi nombre es Javier Izquierdo y creo que la iniciativa **Onesait Revolution** es interesate, porque nos permite aportar nuevas ideas a la plataformas desde el punto de vista de nuestra experiencia y del dia a dia de nuestros proyectos.
